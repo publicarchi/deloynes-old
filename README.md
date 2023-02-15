@@ -1,7 +1,6 @@
 # deloynes
 Édition numérique de la collection Deloynes
 
- 
 Apelle au Sallon
 
 Seconde édition ;
