@@ -2,7 +2,7 @@
 Édition numérique de la collection Deloynes
 
                                                                 
-                   Apelle au Sallon . 
+Apelle au Sallon . 
 Seconde édition ; revue, corrigée et augmentée.
                                                                                                           
 AU SALLON.                                                     
