@@ -50,7 +50,6 @@ trop de roideur dans le bras et la cuisse de l’Ange ; il désiroit plus de maj
 **************
 AGATHE
 ******************
-
 genre comme cet Artifte , en n’eft pas fans mérite : mais qu’il fe fouvienne que lorfque Teniers voulut peindre l’Hiftoire , il fe trouva au-deffous du médiocre. 
 
 Apelle paffa bientôt à l’examen du Tableau de Henri IV & Sulli; par M. le Barbier l’aîné. Son Siége de Beauvais qui parut , il y a deux ans, me fit efpérer que cet Artifte obtiendroit les fuffrages d’Apelle. Il trouva que le fond du Tableaufailoit tort aux figures; qu’elles auroient produit plus d'effet, s’il eût fuppofé derrière elles un maffif de feuillage. Il le loua d’avoir confervé le lieu de la fcène fuivant la vérité de l'Hiftoire. Il approuva la correction du deflin , & l'extrême fini du Tableau qu’il regretta de ne pas voir de plus près, ainfi que celui du Duc de Guife chez le Préfident du Harlai, par M. Beaufort ; il le trouva placé trop haut, vû la grandeur des figures ; cependant il  apperçut dans la tête du Duc un caratère hautain , & l'expreffion d’un Chef de Révoltés. Les Académies & autres deffins de M. le Barbier lui parurent de la plus grande beauté : il y retrouva le goût & la corretion de  l'Antique,  
